@@ -1,7 +1,7 @@
 # Portfolio
 About Me
 
-I am a Technical Writer with experience in B2B
+I am a Technical Writer with experience translating complex technical concepts into clear, user-focused documentation. 4 years experience working for a high-level executive and 3 years experience in luxury tourism and project management.
 
 **Relevant Background**
 
